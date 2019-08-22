@@ -10,3 +10,9 @@ Once your are done, save this file.
 
 Test
 sslkadfj;adfjalkdfjaskdjfasdlkfjaslkdfjasdfj;alksd
+
+Max Spielman
+
+I love playing baseball
+I love listening to music
+My favorite school subject is math
